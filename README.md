@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DivyaTalluri-3
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in ... Singing, dancing, Creativity
+- 🌱 I’m currently learning ... Python
+- 💞️ I’m looking to collaborate on ... Be friendly with all
 - 📫 How to reach me ... Phone and chatting
 - 😄 Pronouns: ... Divya Talluri
 - ⚡ Fun fact: ... Always keep smiling
